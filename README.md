@@ -6,19 +6,15 @@ THIS PERSON DID NOT SHOW ANY SIGNS OF PHYSICAL AGGRESSION WHILE 5 SECURITY GUARD
 THEY BROKE THE FOOT OF THE VICTIM WHILE HE WAS BEING ATTACKED, HE HAD A BROKEN FOOT FOR ONE YEAR AFTER THAT INCIDENT, HE COULD NOT WALK WELL FOR 2 MONTHS AFTER THAT INCIDENT
 
 ### Video coverage:
-#### (Nowhere Festival 2018: Defending the rights of the dogs)[https://www.youtube.com/watch?v=R24vZgfY7Hc]
+#### [Nowhere Festival 2018: Defending the rights of the dogs](https://www.youtube.com/watch?v=R24vZgfY7Hc)
 
-#### I was not in consent to be raped by securities! 
-[https://www.youtube.com/watch?v=mxu5-EUGLOs]
+#### [I was not in consent to be raped by securities!](https://www.youtube.com/watch?v=mxu5-EUGLOs)
 
-#### I was raped by drunk security at Nowhere Festival 2018
-[https://www.youtube.com/watch?v=Jzd2wjDR0yw]
+#### [I was raped by drunk security at Nowhere Festival 2018](https://www.youtube.com/watch?v=Jzd2wjDR0yw)
 
-#### Crazy authorities broke my foot for no reason at Nowhere Festival 2018
-[https://www.youtube.com/watch?v=ZQ_D-Rz8k8I]
+#### [Crazy authorities broke my foot for no reason at Nowhere Festival 2018](https://www.youtube.com/watch?v=ZQ_D-Rz8k8I)
 
-#### I was kidnapped and raped by security guards (Nowhere Festival 2018)
-[https://www.youtube.com/watch?v=POig-hRTvPU]
+#### [I was kidnapped and raped by security guards at Nowhere Festival 2018](https://www.youtube.com/watch?v=POig-hRTvPU)
 
 1. He was been physically harmed with toxic poison which was injected into his body to put him into a coma 
 
