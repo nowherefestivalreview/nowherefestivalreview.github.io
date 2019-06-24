@@ -1,7 +1,7 @@
 # nowherefestivalreview.github.io
 ## A Nowhere Festival 2018 Review from a guy who was physically abused by the organization of that festival. 
 
-1. He was been physically harmed with toxic poin which was injected into his body to put him into a coma 
+1. He was been physically harmed with toxic poison which was injected into his body to put him into a coma 
 
 2. He then was kidnapped 70 kilometers away into a hospital where he woke up, chained to the bed, on both his arms, his belly and his legs. 
 
