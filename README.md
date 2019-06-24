@@ -37,7 +37,7 @@ https://www.youtube.com/watch?v=POig-hRTvPU
 
 8. He was attacked again by the same security guards that put him into a coma, while he was relaxing and coming down from that horrible experience, while sitting at a river many kilometers away from the festival 
 
-9. He had monetary losses of more than 300€ (Festival Ticket 140€ + Taxi to get from the hospital back to rescue his dog at the festival 90€ + Gasoline to get to the festival and back 110€) because of that action, until today the organization refused to apologize nor admit any msitake, until today nobody paid me my financial losses 
+9. He had monetary losses of more than 300€ (Festival Ticket 140€ + Taxi to get from the hospital back to rescue his dog at the festival 90€ + Gasoline to get to the festival and back 110€) because of that action, until today the organization refused to apologize nor admit any msitake, until today nobody paid him the financial losses nor acknowledged any mistake
 
 10. The victim has been completely left alone after that incident, nobody offered him any help to cope with that issue, he is now afraid to ever go and visit any festival again 
 
