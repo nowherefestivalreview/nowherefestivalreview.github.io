@@ -1,6 +1,8 @@
 # nowherefestivalreview.github.io
 ## A Nowhere Festival 2018 Review from a guy who was physically abused by the organization of that festival. 
 
+THIS PERSON DID NOT SHOW ANY SIGNS OF PHYSICAL AGGRESSION WHILE 5 SECURITY GUARDS WHERE HUNTING HIM AND PUSHING HIM AND PROVOCING HIM TO JUSTIFY THEIR VIOLENT ACTIONS... He was talking for 15 minutes explaining his issue, which was that he was upset, that the organization would be so cruel to a puppy dog to put him on a leash while he was crying to find his place at the festival. The organization did not care about that dog who was abused by the securities just because he  existed!!! Just because they found a dog in the middle of the festival, they thought they have the right to chain this dog and treat him like a hostage. The victim told the security that he was not agreeing with that behaviour, that is why they started attacking him.
+
 1. He was been physically harmed with toxic poison which was injected into his body to put him into a coma 
 
 2. He then was kidnapped 70 kilometers away into a hospital where he woke up, chained to the bed, on both his arms, his belly and his legs. 
