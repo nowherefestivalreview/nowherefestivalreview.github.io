@@ -7,19 +7,19 @@ THEY BROKE THE FOOT OF THE VICTIM WHILE HE WAS BEING ATTACKED, HE HAD A BROKEN F
 
 ### Video coverage:
 #### Nowhere Festival 2018: Defending the rights of the dogs
-https://www.youtube.com/watch?v=R24vZgfY7Hc
+[https://www.youtube.com/watch?v=R24vZgfY7Hc]
 
 #### I was not in consent to be raped by securities! 
-https://www.youtube.com/watch?v=mxu5-EUGLOs
+[https://www.youtube.com/watch?v=mxu5-EUGLOs]
 
 #### I was raped by drunk security at Nowhere Festival 2018
-https://www.youtube.com/watch?v=Jzd2wjDR0yw
+[https://www.youtube.com/watch?v=Jzd2wjDR0yw]
 
 #### Crazy authorities broke my foot for no reason at Nowhere Festival 2018
-https://www.youtube.com/watch?v=ZQ_D-Rz8k8I
+[https://www.youtube.com/watch?v=ZQ_D-Rz8k8I]
 
 #### I was kidnapped and raped by security guards (Nowhere Festival 2018)
-https://www.youtube.com/watch?v=POig-hRTvPU
+[https://www.youtube.com/watch?v=POig-hRTvPU]
 
 1. He was been physically harmed with toxic poison which was injected into his body to put him into a coma 
 
