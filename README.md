@@ -3,6 +3,24 @@
 
 THIS PERSON DID NOT SHOW ANY SIGNS OF PHYSICAL AGGRESSION WHILE 5 SECURITY GUARDS WHERE HUNTING HIM AND PUSHING HIM AND PROVOCING HIM TO JUSTIFY THEIR VIOLENT ACTIONS... He was talking for 15 minutes explaining his issue, which was that he was upset, that the organization would be so cruel to a puppy dog to put him on a leash while he was crying to find his place at the festival. The organization did not care about that dog who was abused by the securities just because he  existed!!! Just because they found a dog in the middle of the festival, they thought they have the right to chain this dog and treat him like a hostage. The victim told the security that he was not agreeing with that behaviour, that is why they started attacking him.
 
+THEY BROKE THE FOOT OF THE VICTIM WHILE HE WAS BEING ATTACKED, HE HAD A BROKEN FOOT FOR ONE YEAR AFTER THAT INCIDENT, HE COULD NOT WALK WELL FOR 2 MONTHS AFTER THAT INCIDENT
+
+Video coverage:
+Nowhere Festival 2018: Defending the rights of the dogs
+https://www.youtube.com/watch?v=R24vZgfY7Hc
+
+I was not in consent to be raped by securities! 
+https://www.youtube.com/watch?v=mxu5-EUGLOs
+
+I was raped by drunk security at Nowhere Festival 2018
+https://www.youtube.com/watch?v=Jzd2wjDR0yw
+
+Crazy authorities broke my foot for no reason at Nowhere Festival 2018
+https://www.youtube.com/watch?v=ZQ_D-Rz8k8I
+
+I was kidnapped and raped by security guards (Nowhere Festival 2018)
+https://www.youtube.com/watch?v=POig-hRTvPU
+
 1. He was been physically harmed with toxic poison which was injected into his body to put him into a coma 
 
 2. He then was kidnapped 70 kilometers away into a hospital where he woke up, chained to the bed, on both his arms, his belly and his legs. 
