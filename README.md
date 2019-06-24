@@ -5,6 +5,8 @@ THIS PERSON DID NOT SHOW ANY SIGNS OF PHYSICAL AGGRESSION WHILE 5 SECURITY GUARD
 
 THEY BROKE THE FOOT OF THE VICTIM WHILE HE WAS BEING ATTACKED, HE HAD A BROKEN FOOT FOR ONE YEAR AFTER THAT INCIDENT, HE COULD NOT WALK WELL FOR 2 MONTHS AFTER THAT INCIDENT
 
+The victim woke up completely NAKED in the hospital, there was absolutely no reason to undress him, was he sexually abused?
+
 ### Video coverage:
 #### [Nowhere Festival 2018: Defending the rights of the dogs](https://www.youtube.com/watch?v=R24vZgfY7Hc)
 
